@@ -1,1 +1,1 @@
-# Server-Skarti-Pro
+🎉 Your configuration has been successfully !
